@@ -3,7 +3,7 @@
 ## Week1 
 
 1. Background survey: https://forms.gle/G4kLRho75MopRB7XA
-2. 6/20 Monday KSS
+2. 6/20 Monday KSS: https://forms.gle/MjF6RniYsQheEjxe7
 3. 6/21 Tuesday KSS
 4. 6/22 Weds KSS 
 5. 6/23 Thurs KSS
