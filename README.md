@@ -13,5 +13,4 @@
 
 1. 6/27 Monday KSS: decided to give some rest :)
 2. 6/28 Tues KSS: https://forms.gle/at3k7yzSm8n7oa2u5
-3. 6/29 Weds KSS
-4. Reflection survey 
+3. Reflection survey 
